@@ -15,7 +15,7 @@ Also Founder of DeASI alongside being a Principal Ai/Si architect speacializing 
 - goals:  pursuing my custom and optimized ubi etf trust account execution and and sucessful implementation. (UBI project is featuring ohio currently with features/systems that are easily adobtable by goverments)
 
 
-(past performence does not guarentee future results, trading in any market inbolves rigorious risk management techniques for success (which we do speacialize in) we still cant legally guarentee profits over any period of tim without being very conservative to avoid legal actions against us. 
+(past performence does not guarentee future results, trading in any market involves rigorious risk management techniques for success (which we do speacialize in) we still cant legally guarentee profits over any period of tim without being very conservative to avoid legal actions against us. 
 
 <!---
 Rchie121/Rchie121 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
