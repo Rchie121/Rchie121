@@ -1,5 +1,5 @@
  👋 Hi, I’m @Rchie121 owner of trade-by-second brokerage and financial services.
-Also Principal Ai/Si architect speacializing in the ahead of curve technology sector of advanced autonomy 
+Also Founder of DeASI alongside being a Principal Ai/Si architect speacializing in the ahead of curve technology sector of advanced autonomy 
 
 - 👀 I’m interested in manufacturing the most memecoins and RWA tokens across all blockchain network 
 
